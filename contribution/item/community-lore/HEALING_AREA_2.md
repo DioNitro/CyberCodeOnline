@@ -1,0 +1,1 @@
+Dented and scratched, this drone repeatedly tries to take flight to no avail. 
